@@ -1,1 +1,0 @@
-# J-min0224.github.io
